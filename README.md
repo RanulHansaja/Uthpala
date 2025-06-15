@@ -1,2 +1,0 @@
-# Uthpala
-Uthapala's Portfolio
